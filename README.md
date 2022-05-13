@@ -1,6 +1,6 @@
 - 👋 sou estudante
-- 👀trabalhador
-- 🌱estuda e chato
+- 👀estuda e chato
+- 🌱da roca
 - 💞️emanuel colombo
 - 📫missal 
 
